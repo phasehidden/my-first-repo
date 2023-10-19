@@ -7,3 +7,4 @@ I am currently studying computer science specifically:
       - c programing
 
 In my freee time I like playing video games like call of duty and valorant. On console I enjoy playing fifa and fornite. 
+That's awesome!  I like games, too.
